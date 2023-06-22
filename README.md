@@ -16,6 +16,13 @@ https://www.youtube.com/watch?v=5rpmB67GY0Q
 
 https://www.youtube.com/watch?v=cpo_SlmbIuY
 
+![image](https://github.com/jestxfot/nostalgia/assets/87380272/b73a0b53-e9d8-46a3-a7d1-d4bd73229cbb)
+
+https://www.youtube.com/watch?v=-PmXqe7TLjo
+
+https://www.youtube.com/watch?v=WahnzvHmol4
+
+
 ### Винди 31
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/1b6e9330-7262-466c-8dd6-520fd926b393)
 
