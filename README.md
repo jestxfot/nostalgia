@@ -22,6 +22,39 @@ https://www.youtube.com/watch?v=-PmXqe7TLjo
 
 https://www.youtube.com/watch?v=WahnzvHmol4
 
+![image](https://github.com/jestxfot/nostalgia/assets/87380272/06c56b24-aa36-4ccc-99ac-99ba3a338b8a)
+
+https://www.youtube.com/watch?v=oPvpsJV5v18&t=259s
+
+### Майнкрафт песни
+![image](https://github.com/jestxfot/nostalgia/assets/87380272/ce7100fd-df2f-4b91-b826-cd62707e11e9)
+
+https://www.youtube.com/watch?v=3lfeu9FDdzQ&t=610s
+
+https://www.youtube.com/watch?v=G26C05eK7uQ
+
+https://www.youtube.com/watch?v=8wCNP3ahSWQ
+
+https://www.youtube.com/watch?v=oGiSgPP-8mc
+
+https://www.youtube.com/watch?v=CjtGtZnKv2U
+
+https://www.youtube.com/watch?v=UWdCG9Fts3s
+
+https://www.youtube.com/watch?v=pIQzTRj5qkE
+
+https://www.youtube.com/watch?v=bIIfFaZSoOI
+
+### Старые песни
+![image](https://github.com/jestxfot/nostalgia/assets/87380272/27e81f21-6372-4bff-8b52-73be470f99d2)
+
+https://www.youtube.com/watch?v=7aPZbH3O49k
+
+### Шарарам
+![image](https://github.com/jestxfot/nostalgia/assets/87380272/f8584bdc-7d5a-48c7-8333-f0ab3e77d308)
+
+https://www.youtube.com/watch?v=j4Ama55FFY8
+
 
 ### Винди 31
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/1b6e9330-7262-466c-8dd6-520fd926b393)
@@ -36,3 +69,7 @@ https://www.youtube.com/watch?v=j1W2ByQcj2Y
 
 ### Slither Io
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/80c6e8ee-3747-4543-9433-c5e7b308ba4a)
+
+
+### Лоракс
+![image](https://github.com/jestxfot/nostalgia/assets/87380272/3210836d-e15c-446e-aced-1e7c24adaff6)
