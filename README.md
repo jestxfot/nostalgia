@@ -1,4 +1,4 @@
-### Minecraft ARG
+### Minecraft ARG (мистика)
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/2dcff85f-7901-47b5-8232-0004124f6db4)
 https://www.youtube.com/watch?v=cQMnezYozKw
 
@@ -25,6 +25,15 @@ https://www.youtube.com/watch?v=WahnzvHmol4
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/06c56b24-aa36-4ccc-99ac-99ba3a338b8a)
 
 https://www.youtube.com/watch?v=oPvpsJV5v18&t=259s
+
+![image](https://github.com/jestxfot/nostalgia/assets/87380272/75357511-4437-463a-a16f-df4cea0d3cb9)
+
+![image](https://github.com/jestxfot/nostalgia/assets/87380272/1a735064-a955-4ebc-9ed7-d2c820c425e3)
+
+### Herobrine
+![image](https://github.com/jestxfot/nostalgia/assets/87380272/34ba5a4c-ddfe-43a1-be59-2e64fc8434e0)
+
+https://www.youtube.com/watch?v=G8e6IV3e6Qw
 
 ### Майнкрафт песни
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/ce7100fd-df2f-4b91-b826-cd62707e11e9)
