@@ -75,6 +75,9 @@ https://www.youtube.com/watch?v=SRqJdn5PZc4
 
 https://www.youtube.com/watch?v=j4Ama55FFY8
 
+![image](https://github.com/jestxfot/nostalgia/assets/87380272/051ac897-4fc9-4540-b3c2-d8932e498041)
+
+https://www.youtube.com/@nikitavasin/videos
 ### Смешарики
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/d54e7866-aa6a-4db6-923f-3ccf0db5f21f)
 
