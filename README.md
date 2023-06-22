@@ -30,6 +30,11 @@ https://www.youtube.com/watch?v=oPvpsJV5v18&t=259s
 
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/1a735064-a955-4ebc-9ed7-d2c820c425e3)
 
+### Майнкрафт мифы
+![image](https://github.com/jestxfot/nostalgia/assets/87380272/a2b76c6c-364b-4407-96a8-2a1c0fc56efe)
+
+https://www.youtube.com/@findaries4969/videos
+
 ### Herobrine
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/34ba5a4c-ddfe-43a1-be59-2e64fc8434e0)
 
