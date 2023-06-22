@@ -35,6 +35,8 @@ https://www.youtube.com/watch?v=oPvpsJV5v18&t=259s
 
 https://www.youtube.com/@findaries4969/videos
 
+![image](https://github.com/jestxfot/nostalgia/assets/87380272/ee116d31-58c5-4c37-a57e-bcd1672be4c5)
+
 ### Herobrine
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/34ba5a4c-ddfe-43a1-be59-2e64fc8434e0)
 
