@@ -105,7 +105,6 @@ https://www.youtube.com/watch?v=WjoUnXymgSc
 ### Slither Io
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/80c6e8ee-3747-4543-9433-c5e7b308ba4a)
 
-
 ### Лоракс
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/3210836d-e15c-446e-aced-1e7c24adaff6)
 
@@ -113,3 +112,6 @@ https://www.youtube.com/watch?v=WjoUnXymgSc
 ![изображение](https://github.com/jestxfot/nostalgia/assets/87380272/3d660360-4ab1-4fd4-a817-9512df6f30f1)
 
 ![изображение](https://github.com/jestxfot/nostalgia/assets/87380272/144ab8da-5d65-48f3-b37c-bc744697158c)
+
+### Вилли Фог
+![изображение](https://github.com/jestxfot/nostalgia/assets/87380272/0abf0627-761f-41e5-82c6-8d87f406d5f6)
