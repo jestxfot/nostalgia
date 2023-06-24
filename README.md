@@ -108,3 +108,8 @@ https://www.youtube.com/watch?v=WjoUnXymgSc
 
 ### Лоракс
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/3210836d-e15c-446e-aced-1e7c24adaff6)
+
+### Анималия
+![изображение](https://github.com/jestxfot/nostalgia/assets/87380272/3d660360-4ab1-4fd4-a817-9512df6f30f1)
+
+![изображение](https://github.com/jestxfot/nostalgia/assets/87380272/144ab8da-5d65-48f3-b37c-bc744697158c)
