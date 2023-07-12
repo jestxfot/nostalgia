@@ -70,3 +70,16 @@ https://www.youtube.com/watch?v=UWdCG9Fts3s
 https://www.youtube.com/watch?v=pIQzTRj5qkE
 
 https://www.youtube.com/watch?v=bIIfFaZSoOI
+
+### Mr.Freeze ►
+![image](https://github.com/jestxfot/nostalgia/assets/87380272/2671cd8f-0ef6-4942-be87-91ae34cab9f9)
+
+![image](https://github.com/jestxfot/nostalgia/assets/87380272/1bddcf74-8851-4b52-aade-016fcab572ea)
+
+### DILLERON ★ Play 
+![image](https://github.com/jestxfot/nostalgia/assets/87380272/e6688f8d-12d2-414b-a8b4-3516df77ac7e)
+
+### Фирамир
+https://www.youtube.com/@firamirrofls5622/videos
+
+![image](https://github.com/jestxfot/nostalgia/assets/87380272/4135b578-140e-4485-a97a-c16cb5102517)
