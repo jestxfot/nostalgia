@@ -16,3 +16,6 @@ https://www.youtube.com/@nikitavasin/videos
 https://www.youtube.com/watch?v=BbJ0FJPIO3s
 
 https://www.youtube.com/watch?v=sgg6I-IU4fE
+
+### Нейрошарики
+![image](https://github.com/jestxfot/nostalgia/assets/87380272/f0f146c7-ceaf-4de6-a361-d95dffbf57a8)
