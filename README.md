@@ -29,6 +29,8 @@ https://www.youtube.com/watch?v=WjoUnXymgSc
 ### Дисс (дружко шоу)
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/5661971d-a18c-4cc5-8f14-378ed0b9a601)
 
+### Классная школа
+
 ### Анималия
 ![изображение](https://github.com/jestxfot/nostalgia/assets/87380272/3d660360-4ab1-4fd4-a817-9512df6f30f1)
 
