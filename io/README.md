@@ -8,6 +8,16 @@
 
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/8cbb14b7-32cb-41ed-95b4-e1afa828e1ba)
 
+![image](https://github.com/jestxfot/nostalgia/assets/87380272/866af923-2c15-4678-ab3c-5aa32b4587c4)
+
+![image](https://github.com/jestxfot/nostalgia/assets/87380272/a885b18d-4613-4e3c-b644-d587216622ac)
+
+![image](https://github.com/jestxfot/nostalgia/assets/87380272/6e624091-7ae8-4a43-9b2e-88c9479a1232)
+
+![image](https://github.com/jestxfot/nostalgia/assets/87380272/378953f4-739c-43b8-bb74-5a8ee26dec09)
+
+
+
 ### capture territory
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/9f40e0df-d1d3-4f01-9b75-8dac2e2bce52)
 
