@@ -1,4 +1,7 @@
 ### io игры 
+![image](https://github.com/jestxfot/nostalgia/assets/87380272/3adb9fd1-98c2-445a-b95e-9c18a3a7076c)
+
+![image](https://github.com/jestxfot/nostalgia/assets/87380272/8e649210-2401-4e07-974b-7cb40f944cca)
 
 ### android deep io clone
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/dcd7098d-cd71-4394-8d91-f537d9e82b6e)
