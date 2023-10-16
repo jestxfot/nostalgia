@@ -3,6 +3,7 @@
 
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/f72b4c99-b0d6-4f49-a053-8f5ae7e713ac)
 
+![image](https://github.com/jestxfot/nostalgia/assets/87380272/79dade87-64cb-4ad2-9591-1b4340ec6ecb)
 
 ### Принцесса
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/ae20251c-aa24-40d1-b942-0a6c3e322acc)
