@@ -64,6 +64,9 @@ https://www.youtube.com/watch?v=2B4q6Akk6tE
 
 https://www.youtube.com/watch?v=G8e6IV3e6Qw
 
+### Атмосфера
+![image](https://github.com/jestxfot/nostalgia/assets/87380272/dad089f0-4b3f-4767-9bb2-f9e49e7222fd)
+
 ### Майнкрафт песни
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/ce7100fd-df2f-4b91-b826-cd62707e11e9)
 
