@@ -30,12 +30,20 @@ https://www.youtube.com/watch?v=oPvpsJV5v18&t=259s
 
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/1a735064-a955-4ebc-9ed7-d2c820c425e3)
 
+![image](https://github.com/jestxfot/nostalgia/assets/87380272/71c3baa9-951e-4b66-971b-49dea6a9915f)
+
+![image](https://github.com/jestxfot/nostalgia/assets/87380272/d1a1563c-b6d6-469d-a6fe-e67af9a57e7d)
+
 ### Майнкрафт мифы
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/a2b76c6c-364b-4407-96a8-2a1c0fc56efe)
 
 https://www.youtube.com/@findaries4969/videos
 
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/ee116d31-58c5-4c37-a57e-bcd1672be4c5)
+
+![image](https://github.com/jestxfot/nostalgia/assets/87380272/f93ccfcb-2bcb-467b-a69d-c2d146dfc60e)
+
+![image](https://github.com/jestxfot/nostalgia/assets/87380272/ec8b6b3a-e1c1-45fd-94ef-47c4192aa3b6)
 
 ### Herobrine
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/64881a51-07b9-4659-b067-4bc85bd5fc66)
@@ -70,6 +78,11 @@ https://www.youtube.com/watch?v=UWdCG9Fts3s
 https://www.youtube.com/watch?v=pIQzTRj5qkE
 
 https://www.youtube.com/watch?v=bIIfFaZSoOI
+
+### Сиды
+![image](https://github.com/jestxfot/nostalgia/assets/87380272/1bfea5dd-0dd3-4fa6-934e-7a776fabfdcc)
+
+![image](https://github.com/jestxfot/nostalgia/assets/87380272/1adca840-4641-448f-a2c9-988fe22b11bd)
 
 ### Mr.Freeze ►
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/2671cd8f-0ef6-4942-be87-91ae34cab9f9)
