@@ -18,6 +18,8 @@ https://www.youtube.com/watch?v=BbJ0FJPIO3s
 
 https://www.youtube.com/watch?v=sgg6I-IU4fE
 
+![image](https://github.com/jestxfot/nostalgia/assets/87380272/de8bba4a-589a-463d-9fff-9755814ede45)
+
 ### Карусель
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/3de142c7-7f7b-446e-af01-d603623a28c9)
 
