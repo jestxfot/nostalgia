@@ -17,5 +17,8 @@ https://www.youtube.com/watch?v=BbJ0FJPIO3s
 
 https://www.youtube.com/watch?v=sgg6I-IU4fE
 
+### Карусель
+![image](https://github.com/jestxfot/nostalgia/assets/87380272/3de142c7-7f7b-446e-af01-d603623a28c9)
+
 ### Нейрошарики
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/f0f146c7-ceaf-4de6-a361-d95dffbf57a8)
