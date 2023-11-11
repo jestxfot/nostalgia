@@ -103,3 +103,6 @@ https://www.youtube.com/watch?v=bIIfFaZSoOI
 https://www.youtube.com/@firamirrofls5622/videos
 
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/4135b578-140e-4485-a97a-c16cb5102517)
+
+### Erbaev
+![image](https://github.com/jestxfot/nostalgia/assets/87380272/1a32b605-5db0-4396-86d0-cf4062e10f3a)
