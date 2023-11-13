@@ -36,5 +36,3 @@ https://www.youtube.com/watch?v=WjoUnXymgSc
 
 ### Дисс (дружко шоу)
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/5661971d-a18c-4cc5-8f14-378ed0b9a601)
-
-### Классная школа
