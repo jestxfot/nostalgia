@@ -28,9 +28,6 @@ https://www.youtube.com/watch?v=D4JSIIjpHfA
 
 https://www.youtube.com/watch?v=WjoUnXymgSc
 
-### Slither Io
-![image](https://github.com/jestxfot/nostalgia/assets/87380272/80c6e8ee-3747-4543-9433-c5e7b308ba4a)
-
 ### Лоракс
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/3210836d-e15c-446e-aced-1e7c24adaff6)
 
