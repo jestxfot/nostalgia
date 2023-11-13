@@ -43,6 +43,8 @@ https://www.youtube.com/watch?v=oPvpsJV5v18&t=259s
 
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/7b6107c2-8914-4f1b-b74a-f9de32800664)
 
+![image](https://github.com/jestxfot/nostalgia/assets/87380272/d2f981c2-6024-4a9f-8894-cd8d5a783233)
+
 ### Майнкрафт мифы
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/a2b76c6c-364b-4407-96a8-2a1c0fc56efe)
 
