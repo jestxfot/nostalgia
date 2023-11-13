@@ -38,11 +38,3 @@ https://www.youtube.com/watch?v=WjoUnXymgSc
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/5661971d-a18c-4cc5-8f14-378ed0b9a601)
 
 ### Классная школа
-
-### Анималия
-![изображение](https://github.com/jestxfot/nostalgia/assets/87380272/3d660360-4ab1-4fd4-a817-9512df6f30f1)
-
-![изображение](https://github.com/jestxfot/nostalgia/assets/87380272/144ab8da-5d65-48f3-b37c-bc744697158c)
-
-### Вилли Фог
-![изображение](https://github.com/jestxfot/nostalgia/assets/87380272/0abf0627-761f-41e5-82c6-8d87f406d5f6)
