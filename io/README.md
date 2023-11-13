@@ -1,3 +1,6 @@
+### Slither Io
+![image](https://github.com/jestxfot/nostalgia/assets/87380272/80c6e8ee-3747-4543-9433-c5e7b308ba4a)
+
 ### io игры 
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/3adb9fd1-98c2-445a-b95e-9c18a3a7076c)
 
