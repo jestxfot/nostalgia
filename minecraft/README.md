@@ -56,6 +56,10 @@ https://www.youtube.com/@findaries4969/videos
 
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/d2f981c2-6024-4a9f-8894-cd8d5a783233)
 
+![image](https://github.com/jestxfot/nostalgia/assets/87380272/e808d39d-e0da-4c15-8329-1932d7838ed8)
+
+![image](https://github.com/jestxfot/nostalgia/assets/87380272/bb233d48-ad8d-442e-ad27-49737f9c4873)
+
 ### Herobrine
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/64881a51-07b9-4659-b067-4bc85bd5fc66)
 
