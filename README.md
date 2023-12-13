@@ -1,4 +1,5 @@
 ### Скибиди туалет 
+![image](https://github.com/jestxfot/nostalgia/assets/87380272/31786206-640f-4663-badb-4fbc183edb75)
 
 ### Ночь на кладбище
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/ef7928a9-cf99-4c8f-b15a-ca17d5de2b56)
