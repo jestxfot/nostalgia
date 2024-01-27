@@ -10,3 +10,5 @@
 
 ### Шарарам
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/0f036773-6754-436e-a2bf-dbecca32708a)
+
+![image](https://github.com/jestxfot/nostalgia/assets/87380272/b0fbb04d-3bb0-4aa2-93f5-ee940ac16e6d)
