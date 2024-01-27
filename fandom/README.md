@@ -1,6 +1,8 @@
 ### Скибиди туалет 
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/31786206-640f-4663-badb-4fbc183edb75)
 
+![image](https://github.com/jestxfot/nostalgia/assets/87380272/9d10835b-9bf4-4013-b5df-711b66774c88)
+
 ### Знакомьтесь Боб вики
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/17242e59-a91c-4fca-8b17-d64d783b1c47)
 
