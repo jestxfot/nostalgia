@@ -145,3 +145,6 @@ https://www.youtube.com/@firamirrofls5622/videos
 
 ### Erbaev
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/1a32b605-5db0-4396-86d0-cf4062e10f3a)
+
+### Майнкрафт мониторинг, новые сервера
+![image](https://github.com/jestxfot/nostalgia/assets/87380272/95dac601-5b28-41bc-83a1-c8eb247a2b2d)
