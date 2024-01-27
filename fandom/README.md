@@ -8,6 +8,8 @@
 
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/82574da8-98e6-4808-83d7-6832deeeab4a)
 
+![image](https://github.com/jestxfot/nostalgia/assets/87380272/fd3013df-b862-4f52-badf-83484b18ca24)
+
 ### Шарарам
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/0f036773-6754-436e-a2bf-dbecca32708a)
 
