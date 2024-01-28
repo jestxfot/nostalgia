@@ -5,6 +5,8 @@
 
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/d621f657-c1e4-4277-9a37-c3a86844ed26)
 
+![image](https://github.com/jestxfot/nostalgia/assets/87380272/e8bc8a54-be1f-4ff8-bdee-77c2d6b890a5)
+
 ### Знакомьтесь Боб вики
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/17242e59-a91c-4fca-8b17-d64d783b1c47)
 
