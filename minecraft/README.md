@@ -24,6 +24,8 @@ https://www.youtube.com/watch?v=rt3stRjg2b4
 
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/2c44c095-0067-49cc-b32b-2f18ecabbb82)
 
+![image](https://github.com/jestxfot/nostalgia/assets/87380272/98c33b05-7a89-442a-82bf-87704693e807)
+
 ### Атмосфера
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/dad089f0-4b3f-4767-9bb2-f9e49e7222fd)
 
