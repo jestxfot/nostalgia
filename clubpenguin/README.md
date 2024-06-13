@@ -1,3 +1,5 @@
+![image](https://github.com/jestxfot/nostalgia/assets/87380272/0d62f44b-4bd4-4cef-90f9-d1b3ddfec2e3)
+
 ### Клуб Пингвинов
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/7759fc85-02a7-46f8-91d2-6f92f22a3a8b)
 
