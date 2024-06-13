@@ -42,7 +42,11 @@ https://www.youtube.com/watch?v=bIIfFaZSoOI
 ### Фирамир
 https://www.youtube.com/@firamirrofls5622/videos
 
+https://www.youtube.com/@firamir_official/videos
+
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/4135b578-140e-4485-a97a-c16cb5102517)
+
+![image](https://github.com/jestxfot/nostalgia/assets/87380272/8a8ab6e6-c6b6-4b88-a952-b1da0ac5eba0)
 
 ### Erbaev
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/1a32b605-5db0-4396-86d0-cf4062e10f3a)
