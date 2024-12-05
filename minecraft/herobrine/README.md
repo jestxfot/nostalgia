@@ -1,7 +1,3 @@
-![image](https://github.com/jestxfot/nostalgia/assets/87380272/34ba5a4c-ddfe-43a1-be59-2e64fc8434e0)
-
-https://www.youtube.com/watch?v=G8e6IV3e6Qw
-
 Скример https://www.youtube.com/watch?v=opuQmQy87x4
 
 https://www.youtube.com/watch?v=clElrb1mBmw
