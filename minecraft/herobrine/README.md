@@ -1,5 +1,3 @@
-https://www.youtube.com/watch?v=MpZl4IQjYz0
-
 https://www.youtube.com/watch?v=eRpe0G5yE1k
 
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/cf385f53-87d0-4518-864b-b7d5389f3634)
