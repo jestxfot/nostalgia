@@ -1,5 +1,3 @@
-Скример https://www.youtube.com/watch?v=opuQmQy87x4
-
 https://www.youtube.com/watch?v=clElrb1mBmw
 
 https://www.youtube.com/watch?v=dHMUaCeUA9A
