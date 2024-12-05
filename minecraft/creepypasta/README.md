@@ -1,7 +1,3 @@
-https://www.youtube.com/@findaries4969/videos
-
-![image](https://github.com/jestxfot/nostalgia/assets/87380272/ee116d31-58c5-4c37-a57e-bcd1672be4c5)
-
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/f93ccfcb-2bcb-467b-a69d-c2d146dfc60e)
 
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/ec8b6b3a-e1c1-45fd-94ef-47c4192aa3b6)
