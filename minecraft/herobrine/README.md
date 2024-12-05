@@ -1,7 +1,3 @@
-![image](https://github.com/jestxfot/nostalgia/assets/87380272/cf385f53-87d0-4518-864b-b7d5389f3634)
-
-https://www.youtube.com/watch?v=2B4q6Akk6tE
-
 ![image](https://github.com/jestxfot/nostalgia/assets/87380272/34ba5a4c-ddfe-43a1-be59-2e64fc8434e0)
 
 https://www.youtube.com/watch?v=G8e6IV3e6Qw
